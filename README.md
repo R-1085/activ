@@ -2,5 +2,6 @@
 proyecto de redes
 
 
-trabajo de clase figura:
-![Uploading DSC_0008.JPG…]()
+curso
+https://sites.google.com/view/cursoseideas/p%C3%A1gina-principal?authuser=0
+
